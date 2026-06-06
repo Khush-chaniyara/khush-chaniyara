@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **khushkhush658@gmail.com**
 
-- Hackathons : **I Was Participated In 5+ Hackathons As Team Leader**
+- Hackathons : **I Was Participated In 7+ Hackathons As Team Leader**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
